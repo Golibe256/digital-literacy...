@@ -13,3 +13,4 @@ Ability to create digital content like documents, presentations, videos, and ima
 Cybersecurity awareness:
 Understanding online threats like phishing scams, malware, and privacy concerns, and taking appropriate precautions to protect personal information. 
 tdhchvhgjhdjvjvjvjvjvgchckfofhfhfgfuhgg
+understanding online threats uses by phishing scem , malware, and privacy concerns and taking approcaution to protect personal information
